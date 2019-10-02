@@ -1,1 +1,1 @@
-Exercicie WCS Septembre 2019 - Février 2020
+Exercices WCS Septembre 2019 - Février 2020
